@@ -1,0 +1,1 @@
+# aqlli_kuzoynak
